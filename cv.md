@@ -24,6 +24,8 @@ assel.oralova@inbox.ru
 SOUTH CHINA UNIVERSITY OF TECHNOLOGY
 * 2013 
 NORTHWESTERN  POLYTECHNICAL  UNIVERSITY
+* 2011
+Колледж иностранных языков «Лингва»
 ### Знание языков
 * Казахский — Родной
 * Русский — C2 — В совершенстве
